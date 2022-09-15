@@ -1,2 +1,0 @@
-# Dimperr.github.io
-Biodata
